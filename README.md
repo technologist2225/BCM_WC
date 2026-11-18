@@ -1,1 +1,3 @@
 # BCM_WC
+
+TẢI VÀ MỞ THÔI NHA
